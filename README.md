@@ -4,4 +4,4 @@ This repository contains all the code (and some additional files) from my [Kuber
 
 # Hello Aldo, I didn't find other way to contact you ) 
 
-Can I contact you privately with some questions about part time work?
+Can I contact you privately with some questions about part time work? If yes email me to ddimasik@gmail.com please ) 
